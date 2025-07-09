@@ -40,13 +40,13 @@
 ──── ୨୧ ──── 
 _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊𝚛𝚜 𝚗' 𝚔𝚒𝚗𝚗𝚒𝚎_
 
-♡ Toga Himiko  -- My first bias n' whom I love the most, forever my cutest girl in the universe<3
+<img src="https://github.com/user-attachments/assets/7ed2abd3-ff88-430e-a604-55d2f24bda7e" width="33" height="33">Toga Himiko  ── My first bias n' whom I love the most, forever my cutest girl in the universe<img src="https://github.com/user-attachments/assets/44cf9ebd-2e1a-4213-a4ec-9c208c7f3ce3" width="26" height="26">
 
-♡ Ceres Fauna -- She has such comforting soft voice, she soothes my soul everytimes. You should really check her out, she's a very amazing, sweet n' kind person. I love love love her so much
+<img src="https://github.com/user-attachments/assets/a476fd0f-1c0c-4a57-a56e-3442072238f0" width="30" height="30">Ceres Fauna ── She has such comforting soft voice, she soothes my soul everytimes. You should really check her out, she's a very amazing, sweet n' kind person. I love love love her so much
 
-♡ Tsukumo Sana -- She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce
+<img src="https://github.com/user-attachments/assets/9419414d-0f1e-4d6a-8a46-8ffc1c9a5b66" width="24" height="24"> Tsukumo Sana ── She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce
 
-♡ Ouro Kronii -- I see myself in her
+ <img src="https://github.com/user-attachments/assets/b9dbe721-65b5-4482-a7c0-3cff5abe8677" width="28" height="28">Ouro Kronii ── I see myself in her
 
 ✦ IRyS
 
@@ -56,21 +56,21 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 
 ✦ Vestia Zeta
 
-♡ Ling Yue n' Xiao-Qing -- Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPERATES THEM.
+♡ Ling Yue n' Xiao-Qing ── Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPERATES THEM.
 
 ✦ BaoQing FangZhu
 
-✦ Hyakumantenbara Salome -- Funny Ojou-sama from NijiJP
+✦ Hyakumantenbara Salome ── Funny Ojou-sama from NijiJP
 
 ✦ Lust {FMAB}
 
 ✦ Ho'olheyak
 
-☆ Asuka Langley Soryu
+ <img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Asuka Langley Soryu
 
-☆ Asa Mitaka 
-
-☆  Crona Gorgon
+ <img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Asa Mitaka
+ 
+ <img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Crona Gorgon
 <h5 align="center">
 ❛ ━━━━━━━━━━━━･❪ 🎕 ❫ ･━━━━━━━━━━━━━━ ❜ 
 
@@ -96,7 +96,7 @@ Drowned in darkness, future gone
 
 Hardships linger without end,
 
-Yet may Hope still rise again.
+Yet may Hope still rise again.<img src="https://github.com/user-attachments/assets/06b081a0-2d2b-4d4e-af1a-340404b9e7ea" width="28" height="28">
 
 ![e422193e65aa3720e2e5d070a13fabce](https://github.com/user-attachments/assets/42c0b59b-3eac-4a28-aee2-c533d5779822)
 
