@@ -32,8 +32,43 @@
 ##  ◞⋆｡⋆ 𝗜𝗻𝘁𝗲𝗿𝗲𝘀𝘁
 </div>
 
-── I LOVE HOLOLIVE A LOT, YOU DON'T UNDERSTAND IT I SWEAR sob sob<img src="https://github.com/user-attachments/assets/7a7e90a1-4ff4-4643-93c5-87a86d70d820" width="39" height="39">
+── I LOVE HOLOLIVE A LOT, YOU DON'T UNDERSTAND IT I SWEAR sob sob. .<img src="https://github.com/user-attachments/assets/7a7e90a1-4ff4-4643-93c5-87a86d70d820" width="39" height="39">
 
+ - Films & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Envangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, etc..(honestly there are a lot just ask me)
+ - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, etc..
+ 
+──── ୨୧ ──── 
+_𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊𝚛𝚜 𝚗' 𝚔𝚒𝚗𝚗𝚒𝚎_
+
+♡ Toga Himiko [My first bias n' whom I love the most, forever my cutest girl in the universe<3]
+
+♡ Ceres Fauna [She has such comforting soft voice, she soothes my soul everytimes. You should really check her out, she's a very amazing, sweet n' kind person. I love love love her so much]
+
+♡ Tsukumo Sana [She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce]
+
+♡ Ouro Kronii 
+
+✦ IRyS
+
+✦ Takane Lui 
+
+✦ Kaela Kovalskia
+
+✦ Vestia Zeta
+
+♡ Ling Yue n' Xiaoqing [Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER EVER SEPERATE THEM.]
+
+✦ BaoQing FangZhu
+
+✦ Hyakumantenbara Salome [Funny Ojou-sama from NijiJP]
+
+✦ Ho'olheyak
+
+☆ Asuka Langley Soryu
+
+☆ Asa Mitaka 
+
+☆  Crona Gorgon
 
 
 
