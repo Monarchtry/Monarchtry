@@ -34,19 +34,19 @@
 
 ── I LOVE HOLOLIVE A LOT, YOU DON'T UNDERSTAND IT I SWEAR sob sob. .<img src="https://github.com/user-attachments/assets/7a7e90a1-4ff4-4643-93c5-87a86d70d820" width="39" height="39">
 
- - Films & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Envangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, etc..(honestly there are a lot just ask me)
- - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, Resident Evil, etc..
+ - Films & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
+ - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, _Resident Evil_, Limbus Company, etc. .
  
 ──── ୨୧ ──── 
 _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊𝚛𝚜 𝚗' 𝚔𝚒𝚗𝚗𝚒𝚎_
 
-♡ Toga Himiko [My first bias n' whom I love the most, forever my cutest girl in the universe<3]
+♡ Toga Himiko  -- My first bias n' whom I love the most, forever my cutest girl in the universe<3
 
-♡ Ceres Fauna [She has such comforting soft voice, she soothes my soul everytimes. You should really check her out, she's a very amazing, sweet n' kind person. I love love love her so much]
+♡ Ceres Fauna -- She has such comforting soft voice, she soothes my soul everytimes. You should really check her out, she's a very amazing, sweet n' kind person. I love love love her so much
 
-♡ Tsukumo Sana [She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce]
+♡ Tsukumo Sana -- She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce
 
-♡ Ouro Kronii 
+♡ Ouro Kronii -- I see myself in her
 
 ✦ IRyS
 
@@ -56,11 +56,13 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 
 ✦ Vestia Zeta
 
-♡ Ling Yue n' Xiao-Qing [Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER EVER SEPERATE THEM.]
+♡ Ling Yue n' Xiao-Qing -- Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPERATES THEM.
 
 ✦ BaoQing FangZhu
 
-✦ Hyakumantenbara Salome [Funny Ojou-sama from NijiJP]
+✦ Hyakumantenbara Salome -- Funny Ojou-sama from NijiJP
+
+✦ Lust {FMAB}
 
 ✦ Ho'olheyak
 
@@ -69,6 +71,36 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 ☆ Asa Mitaka 
 
 ☆  Crona Gorgon
+<h5 align="center">
+❛ ━━━━━━━━━━━━･❪ 🎕 ❫ ･━━━━━━━━━━━━━━ ❜ 
+
+  𝐴 𝑝𝑜𝑒𝑚 𝑓𝑜𝑟 𝐶𝑜𝑢𝑛𝑐𝑖𝑙𝑅𝑦𝑆: 𝐴 𝑏𝑟𝑜𝑘𝑒𝑛 𝑝𝑟𝑜𝑚𝑖𝑠𝑒. .
+
+Space is twisted, desolate and grim,
+
+Nature withers, drowned in sorrow dim
+
+Civilization fades away,
+
+Shattered dreams turn into decay
+
+
+No more moments lost in dreams,
+
+Time stands still in frozen streams
+
+Chaos stretches on and on,
+
+Drowned in darkness, future gone
+
+
+Hardships linger without end,
+
+Yet may Hope still rise again.
+
+![e422193e65aa3720e2e5d070a13fabce](https://github.com/user-attachments/assets/42c0b59b-3eac-4a28-aee2-c533d5779822)
+
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ 
 
 
 
