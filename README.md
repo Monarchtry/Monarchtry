@@ -36,7 +36,8 @@
 
  - Films/Animes & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
  - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, _Resident Evil_, Limbus Company, etc. .
- 
+          (Honestly there are a lot more, it would be too long to list all of it out. Just ask me!)
+
 ──── ୨୧ ──── 
 _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊𝚛𝚜 𝚗' 𝚔𝚒𝚗𝚗𝚒𝚎_
 
