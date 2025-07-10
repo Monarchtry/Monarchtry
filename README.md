@@ -64,6 +64,8 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 
 ✦ Hyakumantenbara Salome ── Funny Ojou-sama from NijiJP
 
+✦ Lolbit
+
 <img src="https://github.com/user-attachments/assets/eb68c4b1-ccba-445b-a70a-fefbb132748f" width="30" height="30">Lust {FMAB}
 
 <img src="https://github.com/user-attachments/assets/2f7ae1fd-4797-4d5e-9c1b-e43aae08693e" width="38" height="38">Ho'olheyak
