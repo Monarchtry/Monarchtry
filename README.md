@@ -14,7 +14,7 @@
 
  - Any pronouns are fine by me, I just preferred they/them!
 
- ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ 
+ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ ◠ 
  <div align="center">
 
 ###  ✧ BYI ✧ 
@@ -22,7 +22,7 @@
 
   ----➤ I'm a quite socially anxious person, so I'll be really quiet & awkward at first interaction. But please do interact with me if u have the same interest(s) as me! I would really appreciate that^^. Low energy or not I'm not really verbal n'tend to just quietly be on my own, so if you also enjoy a peaceful silence of both parties, we could sit n' chill together!!
 
-  ----➤ I'm a pretty chill person but if you do or say anything against my will, I can & will hide you immediately idgaf. Don't take this too personally
+  ----➤ I'm a pretty chill person but if you do or say anything against my will, I can & will hide you immediately idgaf. Don't take this too personal
   
  - Basic DNI criteria (just don't be a jerk)
  - Mostly offtab so you're more granted to get a reply if you whisper me!
@@ -34,43 +34,43 @@
 
 ── I LOVE HOLOLIVE A LOT, YOU DON'T UNDERSTAND IT I SWEAR sob sob. .<img src="https://github.com/user-attachments/assets/7a7e90a1-4ff4-4643-93c5-87a86d70d820" width="39" height="39">
 
- - Films & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
+ - Films/Animes & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
  - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, _Resident Evil_, Limbus Company, etc. .
  
 ──── ୨୧ ──── 
 _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊𝚛𝚜 𝚗' 𝚔𝚒𝚗𝚗𝚒𝚎_
 
-<img src="https://github.com/user-attachments/assets/7ed2abd3-ff88-430e-a604-55d2f24bda7e" width="33" height="33">Toga Himiko  ── My first bias n' whom I love the most, forever my cutest girl in the universe<img src="https://github.com/user-attachments/assets/44cf9ebd-2e1a-4213-a4ec-9c208c7f3ce3" width="26" height="26">
+<img src="https://github.com/user-attachments/assets/7ed2abd3-ff88-430e-a604-55d2f24bda7e" width="33" height="33">Toga Himiko  ── My first bias n' whom I love the most, forever my cutest girl in the universe<img src="https://github.com/user-attachments/assets/7fa63adc-ed15-4734-b6b0-0ef6301a15db" width="26" height="26">
 
 <img src="https://github.com/user-attachments/assets/a476fd0f-1c0c-4a57-a56e-3442072238f0" width="30" height="30">Ceres Fauna ── She has such comforting soft voice, she soothes my soul everytimes. You should really check her out, she's a very amazing, sweet n' kind person. I love love love her so much
 
 <img src="https://github.com/user-attachments/assets/9419414d-0f1e-4d6a-8a46-8ffc1c9a5b66" width="24" height="24"> Tsukumo Sana ── She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce
 
- <img src="https://github.com/user-attachments/assets/b9dbe721-65b5-4482-a7c0-3cff5abe8677" width="28" height="28">Ouro Kronii ── I see myself in her
+ <img src="https://github.com/user-attachments/assets/b9dbe721-65b5-4482-a7c0-3cff5abe8677" width="28" height="28">Ouro Kronii ── A kind n' caring soul, she's also very funny and unhinged lol. She just too 𝓹𝓮𝓻𝓯𝓮𝓬𝓽 for this world.
 
 ✦ IRyS
 
 ✦ Takane Lui 
 
-✦ Kaela Kovalskia
+<img src="https://github.com/user-attachments/assets/d65c7787-c915-4d74-98b8-9c7ff2cd41c7" width="30" height="30">Kaela Kovalskia
 
-✦ Vestia Zeta
+<img src="https://github.com/user-attachments/assets/b399d0c7-80f6-44a8-ab25-cf319765c19c" width="24" height="24"> Vestia Zeta
 
-♡ Ling Yue n' Xiao-Qing ── Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPERATES THEM.
+<img src="https://github.com/user-attachments/assets/0052350f-c612-4100-8576-9f1fc9deb222" width="34" height="34"> Ling Yue n' Xiao-Qing ── Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPARATES THEM.
 
-✦ BaoQing FangZhu
+<img src="https://github.com/user-attachments/assets/73e1b951-9444-4fdd-b7dc-786bc88e5e94" width="30" height="30">Baoqing FangZhu
 
 ✦ Hyakumantenbara Salome ── Funny Ojou-sama from NijiJP
 
-✦ Lust {FMAB}
+<img src="https://github.com/user-attachments/assets/eb68c4b1-ccba-445b-a70a-fefbb132748f" width="30" height="30">Lust {FMAB}
 
-✦ Ho'olheyak
+<img src="https://github.com/user-attachments/assets/2f7ae1fd-4797-4d5e-9c1b-e43aae08693e" width="38" height="38">Ho'olheyak
 
- <img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Asuka Langley Soryu
+<img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Asuka Langley Soryu
 
- <img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Asa Mitaka
+<img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Asa Mitaka
  
- <img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Crona Gorgon
+<img src="https://github.com/user-attachments/assets/cde55685-0fff-4395-bddf-06f717fd9d60" width="24" height="24">Crona Gorgon
 <h5 align="center">
 ❛ ━━━━━━━━━━━━･❪ 🎕 ❫ ･━━━━━━━━━━━━━━ ❜ 
 
