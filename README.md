@@ -34,7 +34,7 @@
 
 ── I LOVE HOLOLIVE A LOT, YOU DON'T UNDERSTAND IT I SWEAR sob sob. .<img src="https://github.com/user-attachments/assets/7a7e90a1-4ff4-4643-93c5-87a86d70d820" width="39" height="39">
 
- - Films/Animes & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake triology_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
+ - Films/Animes & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake trilogy_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
  - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, _Resident Evil_, Limbus Company, etc. .
 
    (Honestly there are a lot more, it would be too long to list all of it out. Just ask me!)
