@@ -48,7 +48,7 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 
 <img src="https://github.com/user-attachments/assets/9419414d-0f1e-4d6a-8a46-8ffc1c9a5b66" width="24" height="24"> Tsukumo Sana ── She's 𝒷𝑒𝑒𝑔 just like her heart!! She's sweet like sucrose, a 𝒷𝑒𝑒𝑔 golden retriever heheh. Check out her also, she's very awesome sauce
 
- <img src="https://github.com/user-attachments/assets/b9dbe721-65b5-4482-a7c0-3cff5abe8677" width="28" height="28">Ouro Kronii ── A kind n' caring soul, she's also very funny and unhinged lol. She just too 𝓹𝓮𝓻𝓯𝓮𝓬𝓽 for this world.
+ <img src="https://github.com/user-attachments/assets/b9dbe721-65b5-4482-a7c0-3cff5abe8677" width="28" height="28">Ouro Kronii ── A kind n' caring soul, she's also very funny and unhinged lol. She's just too 𝓹𝓮𝓻𝓯𝓮𝓬𝓽 for this world.
 
 ✦ IRyS
 
