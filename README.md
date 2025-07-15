@@ -60,11 +60,13 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 
 <img src="https://github.com/user-attachments/assets/0052350f-c612-4100-8576-9f1fc9deb222" width="34" height="34"> Ling Yue n' Xiao-Qing ── Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPARATES THEM.
 
+✦ Aoi {AoV}
+
 <img src="https://github.com/user-attachments/assets/73e1b951-9444-4fdd-b7dc-786bc88e5e94" width="30" height="30">Baoqing FangZhu
 
 ✦ Hyakumantenbara Salome ── Funny Ojou-sama from NijiJP
 
-✦ Lolbit
+✦ Roberta {Black Lagoon} 
 
 <img src="https://github.com/user-attachments/assets/eb68c4b1-ccba-445b-a70a-fefbb132748f" width="30" height="30">Lust {FMAB}
 
